@@ -1,4 +1,4 @@
-beacon-etc
+Beacon Export Trading Company
 ==========
 
-Beacon ETC's Homepage
+We put your products in the spotlight!
